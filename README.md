@@ -50,12 +50,6 @@ Se você tem dicas, recursos ou cursos para recomendar, ficarei muito grato!
 
 ---
 
-### 🌈 Preferências de Design
-
-Gosto de combinações de cores como **azul/roxo** com **preto e branco**, que trazem um visual moderno e clean.  
-
----
-
 ### 📫 Contato
 
 - **Email**: [natannatansilva234@gmail.com](mailto:natannatansilva234@gmail.com)  
